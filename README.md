@@ -1,3 +1,7 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami5135aa86-6519-4b69-b550-d08e80fb1b10.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami8cc73b4c-efdc-4863-aee4-dc75f9c4d246.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami9fc3c305-b951-41ab-b06f-4320d8a26a2a.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amib3abf151-4e3d-4e91-a623-6241b932a467.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/I70Mile181East.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/camera@imageURL=liveview%2FI70Mile181East.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/fileslist.jpg)

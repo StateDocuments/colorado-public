@@ -1,4 +1,4 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami2eb971be-55fe-4179-a0cb-ad8dc0286832.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami721fd106-a8c3-4481-a789-ae5afc647fe8.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amie37864af-b156-40c0-941f-f0b4a143a19b.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amie5bcc2c2-6674-4ba9-a369-2c59640462ec.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami00af04d9-30bf-46a0-a8ad-9009e10e082d.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami1245214e-cbcc-489c-89f8-b92d3ab22ffc.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amif8777113-4e5f-4fbd-8468-dc8d7f319bb6.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amif9199bf9-99e6-4917-af89-163676ce1648.png)

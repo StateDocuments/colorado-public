@@ -1,6 +1,4 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami21d31732-c7d0-473a-b6c9-0b736b758ddb.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami74477187-7bc5-4c4a-adb8-0a36308c72d5.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami76864719-66b1-4af1-8e13-b0f3ddb2f6dc.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Amif22cdd50-cc31-4e3e-b8d4-dee69c03e24a.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami09c326ac-2e12-4564-bdaf-552d11ee4300.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/Ami6e4bb34a-cb95-4880-ab9a-33356d209598.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/best-western-cam.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Colorado-public/blob/main/e12dbfe2-9359-4b93-a8ce-b5e461b681d1@size=1920x1080.jpg)
